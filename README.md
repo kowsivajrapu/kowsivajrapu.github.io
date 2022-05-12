@@ -1,2 +1,2 @@
 # kowsivajrapu.github.io
-sravan &amp; kowsi's wedding invitation
+all about sravan &amp; kowsi's wedding celebrations
